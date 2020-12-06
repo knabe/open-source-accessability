@@ -1,1 +1,1 @@
-Standard Bank Check Writing Guide for Visually Impaired by knabelabs on Thingiverse: https://www.thingiverse.com/thing:4645743
+Check Guide for 2.75"x6" personal checks for blind & visually impaired. Guide provides all fields including memo.
