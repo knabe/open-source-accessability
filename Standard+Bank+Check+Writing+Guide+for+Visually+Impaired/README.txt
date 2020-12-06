@@ -1,1 +1,1 @@
-Check Guide for 2.75"x6" personal checks for blind & visually impaired. Guide provides all fields including memo.
+Check Guide to be 3d printed. Designed for 2.75"x6" personal checks for blind & visually impaired. Guide provides all fields including memo.
